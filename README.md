@@ -54,6 +54,19 @@ Buddy For Study team guided students on Satya Scholarship opportunities for Ist 
 
 
 
+### Day 3 
+
+
+2nd August 2025
+
+A day full of inspiration , interaction  and interospection for our CSE & IT freshers .
+
+Dr. Jaswinder Singh (Renowned for Jawin's Lab on Wheels) brought Physics & Maths to Life through fun, simplified experiments and demonstrations. 
+
+Dr. Priya Darshni continued with "Universal Human Values"-  enriching young minds and clarity purpose .
+
+Chief Guest S. Gurcharan Singh Grewal , Secratory - SGPC encouraged students with his motivating words. Interactive discussion sessions followed where students reflected on heir English & Maths Proficiency . Test aresults Day 3 ..
+Learning , laughter and self discovery rolled into one powerful day .
 
 
 
@@ -69,3 +82,7 @@ Buddy For Study team guided students on Satya Scholarship opportunities for Ist 
 
 
 
+
+
+
+e
