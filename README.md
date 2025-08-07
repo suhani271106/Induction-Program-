@@ -30,10 +30,13 @@ The event concludeed with a vote of Thanks vy Dr. KS Maan, HOD IT
 DAY 2. 
 
 Experts Talks about General Issues 
+
 #1st August 2025 
 In college auditorium from exploring values to assessing skills. The day was packed with purpose.
 
 EXPERTS TALKS..
+
+
 Dr. Priya Darshni an "Universal Human Values".
 Dr. Arvind Dhingra on Student Development Via Step & Tae 
 Dr. Arshdeep Singh on food — "A PIVOTAL ROLE in STUDENTS OVERALL WELLNESS".
