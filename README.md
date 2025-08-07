@@ -44,7 +44,7 @@ English & Maths Proficiency tests were conducted  by the team for all streams to
 
 Buddy For Study team guided students on Satya Scholarship opportunities for Ist Year Batch .
 
-
+<img width="395" height="568" alt="Image" src="https://github.com/user-attachments/assets/3953be60-314e-4acc-bbc3-e21437dc2a19" />
 
 
 
