@@ -7,6 +7,22 @@ IT Branch
 #Day-1 
 ##31st July 2025
 
+
+
+
+
+
+<img width="421" height="565" alt="Screenshot (9)" src="https://github.com/user-attachments/assets/4fc5e080-edc4-4f8c-8cf0-f4da5d41169c" />
+
+
+
+
+
+
+
+
+
+
 My first day at GNDEC was amazing, refreshing and peaceful.The atmosphere of the college was very calm.The day began with path and kirtan at the college Gurudwara Sahib , blessing the new beginning of our future teaching and learning tech leaders.The students attended a coll reeege orientation program. They learned avout college history and achievements.
 
 A presentation was shown to introduce the college.It helped the students to understand the college values .
