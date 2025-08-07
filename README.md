@@ -1,4 +1,31 @@
 # Induction-Program-
 Suhani Sharma IT Branch 
 #Day-1 
-##4nd August 2025
+##31st July 2025
+My first day at GNDEC was amazing, refreshing and peaceful.The atmosphere of the college was very calm.The day began with path and kirtan at the college Gurudwara Sahib , blessing the new beginning of our future teaching and learning tech leaders.The students attended a college orientation program. They learned avout college history and achievements.
+
+A presentation was shown to introduce the college.It helped the students to understand the college values .
+After the presentation, there was a motivational speech. 
+The speaker talked about their college journey. They shared how they worked hard during their studies. They also took part on many activities and many inter college competitions . These experiences helped them become successful.The speech inspired the students to stay dedicated and get involve themselves.
+
+
+Insightful address by :
+1. Dr. Sehjpal Singh (Principal)
+2. Dr. Harpreet Kaur Grewal (HOD Applied Science Department)
+3. Dr. Akshay Girdhar (Dean Academics )
+4. Parminder Singh (Dean Student Welfare)
+
+Guests of Honour:
+Er.Ravinder Garg (Cheif Engineer, Municipal Corporation Ludhiana)
+Er. Rakesh Kumar -GNDEC Alumni Batch (1991) ADC Ludhiana 
+
+For sharing their inspiring journey and encouraging students to grow with values , skills and vision.
+The event concludeed with a vote of Thanks vy Dr. KS Maan, HOD IT 
+
+DAY 2. Experts Talks about General Issues 
+#1st August 2025 
+In college auditorium from exploring values to assessing skills. The day was packed with purpose.
+
+EXPERTS TALKS..
+Dr. Priya Darshni an "Universal Human Values".
+Dr. Arvind Dhingra on Student Development Via Step & Tae 
