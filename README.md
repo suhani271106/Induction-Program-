@@ -6,7 +6,8 @@ IT Branch
 
 #Day-1 
 ##31st July 2025
-My first day at GNDEC was amazing, refreshing and peaceful.The atmosphere of the college was very calm.The day began with path and kirtan at the college Gurudwara Sahib , blessing the new beginning of our future teaching and learning tech leaders.The students attended a college orientation program. They learned avout college history and achievements.
+
+My first day at GNDEC was amazing, refreshing and peaceful.The atmosphere of the college was very calm.The day began with path and kirtan at the college Gurudwara Sahib , blessing the new beginning of our future teaching and learning tech leaders.The students attended a coll reeege orientation program. They learned avout college history and achievements.
 
 A presentation was shown to introduce the college.It helped the students to understand the college values .
 After the presentation, there was a motivational speech. 
@@ -26,10 +27,16 @@ Er. Rakesh Kumar -GNDEC Alumni Batch (1991) ADC Ludhiana
 For sharing their inspiring journey and encouraging students to grow with values , skills and vision.
 The event concludeed with a vote of Thanks vy Dr. KS Maan, HOD IT 
 
-DAY 2. Experts Talks about General Issues 
+DAY 2. 
+
+Experts Talks about General Issues 
 #1st August 2025 
 In college auditorium from exploring values to assessing skills. The day was packed with purpose.
 
 EXPERTS TALKS..
 Dr. Priya Darshni an "Universal Human Values".
 Dr. Arvind Dhingra on Student Development Via Step & Tae 
+Dr. Arshdeep Singh on food — "A PIVOTAL ROLE in STUDENTS OVERALL WELLNESS".
+English & Maths Proficiency tests were conducted  by the team for all streams to access foundational skills.
+
+Buddy For Study team guided students on Satya Scholarship opportunities for Ist Year Batch .
