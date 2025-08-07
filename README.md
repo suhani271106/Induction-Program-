@@ -1,5 +1,9 @@
 # Induction-Program-
-Suhani Sharma IT Branch 
+Suhani Sharma 
+
+IT Branch 
+
+
 #Day-1 
 ##31st July 2025
 My first day at GNDEC was amazing, refreshing and peaceful.The atmosphere of the college was very calm.The day began with path and kirtan at the college Gurudwara Sahib , blessing the new beginning of our future teaching and learning tech leaders.The students attended a college orientation program. They learned avout college history and achievements.
