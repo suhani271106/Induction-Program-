@@ -47,7 +47,7 @@ Buddy For Study team guided students on Satya Scholarship opportunities for Ist 
 
 
 
-<img width="40" height="40" alt="W2MDyeo0zkf" src="https://github.com/user-attachments/assets/59d80c2a-c6e3-438f-8c81-db6a5c18514c" />
+
 
 
 
