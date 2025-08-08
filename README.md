@@ -44,11 +44,13 @@ Er. Rakesh Kumar -GNDEC Alumni Batch (1991) ADC Ludhiana
 For sharing their inspiring journey and encouraging students to grow with values , skills and vision.
 The event concludeed with a vote of Thanks vy Dr. KS Maan, HOD IT 
 
-### DAY 2. 
+### DAY 2 
+
+#1st August 2025 
 
 Experts Talks about General Issues 
 
-#1st August 2025 
+
 In college auditorium from exploring values to assessing skills. The day was packed with purpose.
 
 
@@ -67,15 +69,15 @@ In college auditorium from exploring values to assessing skills. The day was pac
 
 
 
-EXPERTS TALKS..
-
+**EXPERTS TALKS..
+**
 
 Dr. Priya Darshni an "Universal Human Values".
 Dr. Arvind Dhingra on Student Development Via Step & Tae 
 Dr. Arshdeep Singh on food — "A PIVOTAL ROLE in STUDENTS OVERALL WELLNESS".
 English & Maths Proficiency tests were conducted  by the team for all streams to access foundational skills.
 
-Buddy For Study team guided students on Satya Scholarship opportunities for Ist Year Batch .
+Buddy For Study team guided students on **Satya Scholarship **opportunities for Ist Year Batch .
 
 <img width="395" height="568" alt="Image" src="https://github.com/user-attachments/assets/3953be60-314e-4acc-bbc3-e21437dc2a19" />
 
