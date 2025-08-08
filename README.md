@@ -93,6 +93,21 @@ Buddy For Study team guided students on Satya Scholarship opportunities for Ist 
 
 A day full of inspiration , interaction  and interospection for our CSE & IT freshers .
 
+
+<img width="207" height="214" alt="Image" src="https://github.com/user-attachments/assets/c89c03ed-52ca-4ebd-94f9-173f2750db21" />
+
+
+
+
+
+
+
+
+
+
+
+
+
 Dr. Jaswinder Singh (Renowned for Jawin's Lab on Wheels) brought Physics & Maths to Life through fun, simplified experiments and demonstrations. 
 
 Dr. Priya Darshni continued with "Universal Human Values"-  enriching young minds and clarity purpose .
