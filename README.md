@@ -112,6 +112,18 @@ Dr. Jaswinder Singh (Renowned for Jawin's Lab on Wheels) brought Physics & Maths
 
 Dr. Priya Darshni continued with "Universal Human Values"-  enriching young minds and clarity purpose .
 
+
+
+
+
+
+
+
+
+
+
+
+
 Chief Guest S. Gurcharan Singh Grewal , Secratory - SGPC encouraged students with his motivating words. Interactive discussion sessions followed where students reflected on heir English & Maths Proficiency . Test aresults Day 3 ..
 Learning , laughter and self discovery rolled into one powerful day .
 
