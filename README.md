@@ -137,3 +137,12 @@ An amazing day at college auditorium at GNDEC with all the streams (ME ,CE , IT 
 
 #** CAUSMIC CLUB**
 
+<img width="365" height="449" alt="Image" src="https://github.com/user-attachments/assets/7e4ebf7b-c5b0-4ee3-a61a-e7898da75e1d" />
+
+
+
+
+
+
+
+A wonderful session by causmic club. Here we get to know about history and inaugration of **Causmic Club **. THe students of previous batch/ session started this club .They told about various events organised and conducted buy them such as ACME , APEX , AMIT  and many more ,which were a grand success . THey motivated au regarding the participation on various clubs which will help to become confident and how to manage events .
