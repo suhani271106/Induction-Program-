@@ -44,9 +44,9 @@ Er. Rakesh Kumar -GNDEC Alumni Batch (1991) ADC Ludhiana
 For sharing their inspiring journey and encouraging students to grow with values , skills and vision.
 The event concludeed with a vote of Thanks vy Dr. KS Maan, HOD IT 
 
-### DAY 2 
+# DAY 2 
 
-# 1st August 2025 
+## 1st August 2025 
 
 Experts Talks about General Issues 
 
@@ -89,10 +89,10 @@ Buddy For Study team guided students on **Satya Scholarship **opportunities for 
 
 
 
-### Day 3 
+# Day 3 
 
 
-2nd August 2025
+ ##2nd August 2025
 
 A day full of inspiration , interaction  and interospection for our CSE & IT freshers .
 
@@ -131,14 +131,14 @@ Chief Guest S. Gurcharan Singh Grewal , Secratory - SGPC encouraged students wit
 Learning , laughter and self discovery rolled into one powerful day .
 
 
-### Day 4
+# Day 4
 
-4th August 2025 
+## 4th August 2025 
 
 An amazing day at college auditorium at GNDEC with all the streams (ME ,CE , IT ,EE,ECE, RB & AI ) a lovely interaction with students , team memebers and teachers . The day started with prayer -" mool mantra".
 
 
-### **CAUSMIC CLUB**
+## **CAUSMIC CLUB**
 
 <img width="365" height="449" alt="Image" src="https://github.com/user-attachments/assets/7e4ebf7b-c5b0-4ee3-a61a-e7898da75e1d" />
 
@@ -152,3 +152,12 @@ An amazing day at college auditorium at GNDEC with all the streams (ME ,CE , IT 
 A wonderful session by causmic club. Here we get to know about history and inaugration of **Causmic Club **. THe students of previous batch/ session started this club .They told about various events organised and conducted buy them such as ACME , APEX , AMIT  and many more ,which were a grand success . THey motivated au regarding the participation on various clubs which will help to become confident and how to manage events .
 
 **EVENTS  ORGANISED**
+
+<img width="329" height="440" alt="Image" src="https://github.com/user-attachments/assets/b773e4ae-62b4-44a6-b029-2fb2fbaae524" />
+
+
+
+
+
+
+
