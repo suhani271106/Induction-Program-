@@ -113,7 +113,7 @@ Dr. Jaswinder Singh (Renowned for Jawin's Lab on Wheels) brought Physics & Maths
 Dr. Priya Darshni continued with "Universal Human Values"-  enriching young minds and clarity purpose .
 
 
-
+<img width="291" height="290" alt="Image" src="https://github.com/user-attachments/assets/26c88356-c505-4574-b24d-2866d5822292" />
 
 
 
