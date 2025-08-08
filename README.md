@@ -50,6 +50,22 @@ Experts Talks about General Issues
 #1st August 2025 
 In college auditorium from exploring values to assessing skills. The day was packed with purpose.
 
+
+
+<img width="370" height="363" alt="Image" src="https://github.com/user-attachments/assets/f4ba39ba-15f8-4792-8994-aed0ceef1d6e" />
+
+
+
+
+
+
+
+
+
+
+
+
+
 EXPERTS TALKS..
 
 
