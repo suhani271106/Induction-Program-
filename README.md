@@ -46,7 +46,7 @@ The event concludeed with a vote of Thanks vy Dr. KS Maan, HOD IT
 
 ### DAY 2 
 
-#1st August 2025 
+# 1st August 2025 
 
 Experts Talks about General Issues 
 
@@ -150,3 +150,5 @@ An amazing day at college auditorium at GNDEC with all the streams (ME ,CE , IT 
 
 
 A wonderful session by causmic club. Here we get to know about history and inaugration of **Causmic Club **. THe students of previous batch/ session started this club .They told about various events organised and conducted buy them such as ACME , APEX , AMIT  and many more ,which were a grand success . THey motivated au regarding the participation on various clubs which will help to become confident and how to manage events .
+
+**EVENTS  ORGANISED**
