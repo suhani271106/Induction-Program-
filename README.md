@@ -137,6 +137,3 @@ An amazing day at college auditorium at GNDEC with all the streams (ME ,CE , IT 
 
 #** CAUSMIC CLUB**
 
-
-
-
