@@ -4,8 +4,9 @@ Suhani Sharma
 IT Branch 
 
 
-#Day-1 
-##31st July 2025
+# Day-1
+
+## 31st July 2025
 
 
 
@@ -43,7 +44,7 @@ Er. Rakesh Kumar -GNDEC Alumni Batch (1991) ADC Ludhiana
 For sharing their inspiring journey and encouraging students to grow with values , skills and vision.
 The event concludeed with a vote of Thanks vy Dr. KS Maan, HOD IT 
 
-DAY 2. 
+### DAY 2. 
 
 Experts Talks about General Issues 
 
@@ -135,9 +136,10 @@ Learning , laughter and self discovery rolled into one powerful day .
 An amazing day at college auditorium at GNDEC with all the streams (ME ,CE , IT ,EE,ECE, RB & AI ) a lovely interaction with students , team memebers and teachers . The day started with prayer -" mool mantra".
 
 
-#** CAUSMIC CLUB**
+### **CAUSMIC CLUB**
 
 <img width="365" height="449" alt="Image" src="https://github.com/user-attachments/assets/7e4ebf7b-c5b0-4ee3-a61a-e7898da75e1d" />
+
 
 
 
