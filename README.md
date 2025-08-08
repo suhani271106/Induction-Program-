@@ -128,20 +128,15 @@ Chief Guest S. Gurcharan Singh Grewal , Secratory - SGPC encouraged students wit
 Learning , laughter and self discovery rolled into one powerful day .
 
 
+### Day 4
+
+4th August 2025 
+
+An amazing day at college auditorium at GNDEC with all the streams (ME ,CE , IT ,EE,ECE, RB & AI ) a lovely interaction with students , team memebers and teachers . The day started with prayer -" mool mantra".
+
+
+#** CAUSMIC CLUB**
 
 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-e
