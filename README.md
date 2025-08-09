@@ -176,4 +176,4 @@ the slides shown by mam focuses on fufilling the basic human aspirations of happ
 <img width="478" height="447" alt="Image" src="https://github.com/user-attachments/assets/00f9db57-9806-47d9-8b93-1adfbaf9d65e" />
 
 
-
+<img width="276" height="458" alt="Image" src="https://github.com/user-attachments/assets/c625ed1c-1115-48e3-942f-6db16986b846" />
