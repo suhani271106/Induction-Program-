@@ -177,3 +177,15 @@ the slides shown by mam focuses on fufilling the basic human aspirations of happ
 
 
 <img width="276" height="458" alt="Image" src="https://github.com/user-attachments/assets/c625ed1c-1115-48e3-942f-6db16986b846" />
+
+
+
+
+
+# **Day 5
+
+## 5 August 2025
+
+## **Lecture by Mr. Gautaum Murria D4- ME on "Motor Sports" **
+
+Motor sport is an umbrella term used to describe competitive sporting events that involve the use of powered vehciles, including cars, motorcylces and trucks . It encompasses numerous 
