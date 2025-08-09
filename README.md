@@ -94,6 +94,8 @@ Buddy For Study team guided students on **Satya Scholarship **opportunities for 
 
  ##2nd August 2025
 
+ 
+
 A day full of inspiration , interaction  and interospection for our CSE & IT freshers .
 
 
@@ -156,6 +158,19 @@ A wonderful session by causmic club. Here we get to know about history and inaug
 <img width="329" height="440" alt="Image" src="https://github.com/user-attachments/assets/b773e4ae-62b4-44a6-b029-2fb2fbaae524" />
 
 
+
+
+
+
+
+## Git Hub : 
+Our day statred in the auditorium with a session with Causmic Club Team . They introduced us to Git Hub , a vital tool for version control and collaboration . With their guidence, we set up our first repositary ,  marking an important step in our journey as budding developers . This hands-on introduction was both practical and exciting , providing us with a foundational skill that will be crucial throughout our acedemic and professional careers.
+
+
+
+
+## Experst lecture By Dr. Priya Darshni Madam on "Univeral Human Values".
+the slides shown by mam focuses on fufilling the basic human aspirations of happiness and prosperity in continuity through right understanding , harmonious relationships , and right utilisations of physical facilities . Happiness is defined as being in a state of harmony , while unhappiness arises from disharmony or contracdication. The material also diffrentiates between temporary excitements - obtained from external sources such as  possessions , sensations and approval from othrs - and genuine happiness , which is stable and self - renewed . Prosperity is to produce more than required without hoarding or exploitation and it is distinct from accumulation of riches . The method of self - discovery - testing ideas via natural acceptance and experimental confrimation - results in manual bliss and manual prosperity . The assignments promote  self - reflection on the everyday activites , considering whether the resulting happiness is permanent or fleeting and measuring time invested in right understanding , relationships and physical facilities to ensure conformity with long - term well - being and harmonious living at all levels - individual, family , society , and nature.
 
 
 
