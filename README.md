@@ -173,6 +173,7 @@ Our day statred in the auditorium with a session with Causmic Club Team . They i
 the slides shown by mam focuses on fufilling the basic human aspirations of happiness and prosperity in continuity through right understanding , harmonious relationships , and right utilisations of physical facilities . Happiness is defined as being in a state of harmony , while unhappiness arises from disharmony or contracdication. The material also diffrentiates between temporary excitements - obtained from external sources such as  possessions , sensations and approval from othrs - and genuine happiness , which is stable and self - renewed . Prosperity is to produce more than required without hoarding or exploitation and it is distinct from accumulation of riches . The method of self - discovery - testing ideas via natural acceptance and experimental confrimation - results in manual bliss and manual prosperity . The assignments promote  self - reflection on the everyday activites , considering whether the resulting happiness is permanent or fleeting and measuring time invested in right understanding , relationships and physical facilities to ensure conformity with long - term well - being and harmonious living at all levels - individual, family , society , and nature..
 
 
+<img width="478" height="447" alt="Image" src="https://github.com/user-attachments/assets/00f9db57-9806-47d9-8b93-1adfbaf9d65e" />
 
 
 
