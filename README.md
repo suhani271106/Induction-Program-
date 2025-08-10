@@ -195,3 +195,10 @@ Engineering is a key component in motor sports , since performance , safety, and
 <img width="358" height="205" alt="Image" src="https://github.com/user-attachments/assets/bb4da78e-a21b-4403-a42f-f5bbe1a12811" />
 
 
+## Experts Lecture by Mrs. Shaffy Makkar on "Millets- Super Food"
+ Shaffy Makkar's lecture on Millets- The Superfood highlighted the nutritional , environmental , and economic benefits of incoporaiting millets into our daily diet . Millets such as ragi (finger millet ), bajra (pearl millets), jowar (sorghum ) , foxtail millet , and little millet are ancient grains rich in fiber , protein , vitamins and essential minerals like iron ,calcium and magnesium . They have a low glycemic index , making them ideal for managing diabetes , improving digestion and promoting heart health . 
+
+ From an environmental perspective , millets  are highly sustainable crops , requiring minimal water, growing well in arid regions and being resistant to pests and climate vairations . They support biodiversity and reduce the dependency on resource -intensive crops like rice and wheat . 
+
+ Economically , millet cultivation benefits small-scale farmers by lowering input costs and providing opportiunites for value - added products such as millet - based snacks, flour  and 
+beverages . Shaffy Makkar emphasized the importance of reviving traditional millet based recipies and integrating them into modern diets for better health outcomes . She also campaigns , government policoes  and food industry innovation in making millets a staple chioce once again , thereby improving nutrition secutiy while supporting sustainable agriculture. 
