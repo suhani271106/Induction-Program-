@@ -185,9 +185,13 @@ the slides shown by mam focuses on fufilling the basic human aspirations of happ
 # Day 5
 
 ## 5 August 2025
-tunnel 
+
 ## Lecture by Mr. Gautaum Murria D4- ME on "Motor Sports" 
 
 Motor sport is an umbrella term used to describe competitive sporting events that involve the use of powered vehciles, including cars, motorcylces and trucks . It encompasses numerous disciplines like Formula 1, MotorGP , RallyRacing , Endurance Racing (e.g. Le Mans ) , Drag Racing and off road sports . Each discipline puts various aspects of speed ,control, endurance, and driving ability to the test , often in challenging condiiton.
 
 Engineering is a key component in motor sports , since performance , safety, and dependability rely significantly on state -of-the -art technological design .Automotive engineers addresss topics like aerodynamics (to minimize drag and maximize downforce) , powertrain engineering (engines ,transmission , and fuel systems ), suspension and chassis tuning (for stabilityand handling ), and material science (to recocile strenght with lightweight construction ). Computer modeling , wind tunnel testing , and data analutics are key technologies that emerge there eventually make their way into consumer vehicles , such as disc brakes advanced tires , turbocharging  ,hybrid systems, and safety features . So in addition to human and mechanical limits , which are pushed forward the development of atuomotive engeering and sustainable mobility.  
+
+<img width="358" height="205" alt="Image" src="https://github.com/user-attachments/assets/bb4da78e-a21b-4403-a42f-f5bbe1a12811" />
+
+
