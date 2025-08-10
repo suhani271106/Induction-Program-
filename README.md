@@ -213,3 +213,15 @@ beverages . Shaffy Makkar emphasized the importance of reviving traditional mill
 
 
 <img width="253" height="197" alt="Image" src="https://github.com/user-attachments/assets/1f0dc2c7-8123-4555-8454-54ca769a4564" />
+
+
+# Day 6 
+
+## 6th August 2025
+
+## Lecture by Dr. Parminder Singh - "The Dean ( Student Welfare )" 
+Dr. Parminder Singh the Dean (Student Welfare ) at GNDEC Ludhiana . He's a professor in the CSE Department .As a part of the Induction Program for the 2025 batch , Dr. Parmnder Singh deliverd a motivational and welcoming lecture, which reportedly left the auditorium filled with energy and positivity . He gave a brief description regarding hostel facilities , sports department , various clubs and regarding the enrollment process in various clubs .
+### Anti -Ragging Awareness Session :
+On 12 August 2024 , during Anti - Ragging Day , he introduced important guidelines in accordance with UGC norms , emphasizing students safety and awareness .
+
+## Expert Lecture by Mr. Manpreet Singh "Fitness for Engineers"
