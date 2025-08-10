@@ -225,3 +225,4 @@ Dr. Parminder Singh the Dean (Student Welfare ) at GNDEC Ludhiana . He's a profe
 On 12 August 2024 , during Anti - Ragging Day , he introduced important guidelines in accordance with UGC norms , emphasizing students safety and awareness .
 
 ## Expert Lecture by Mr. Manpreet Singh "Fitness for Engineers"
+<img width="317" height="428" alt="Image" src="https://github.com/user-attachments/assets/7130eea3-3d11-4230-bffb-f60af8776325" />
