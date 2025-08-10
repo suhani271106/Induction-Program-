@@ -202,3 +202,12 @@ Engineering is a key component in motor sports , since performance , safety, and
 
  Economically , millet cultivation benefits small-scale farmers by lowering input costs and providing opportiunites for value - added products such as millet - based snacks, flour  and 
 beverages . Shaffy Makkar emphasized the importance of reviving traditional millet based recipies and integrating them into modern diets for better health outcomes . She also campaigns , government policoes  and food industry innovation in making millets a staple chioce once again , thereby improving nutrition secutiy while supporting sustainable agriculture. 
+
+<img width="182" height="144" alt="Image" src="https://github.com/user-attachments/assets/111e83f7-2e87-4b3e-8e87-f75cb4524d1f" />
+
+
+
+
+
+
+<img width="253" height="197" alt="Image" src="https://github.com/user-attachments/assets/1f0dc2c7-8123-4555-8454-54ca769a4564" />
