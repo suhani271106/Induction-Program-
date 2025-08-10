@@ -163,7 +163,9 @@ A wonderful session by causmic club. Here we get to know about history and inaug
 
 
 
-## Git Hub : 
+## Git Hub :
+<img width="248" height="341" alt="Image" src="https://github.com/user-attachments/assets/fabdfba7-62bc-4818-b4d8-89d9e38e4c99" /> 
+
 Our day statred in the auditorium with a session with Causmic Club Team . They introduced us to Git Hub , a vital tool for version control and collaboration . With their guidence, we set up our first repositary ,  marking an important step in our journey as budding developers . This hands-on introduction was both practical and exciting , providing us with a foundational skill that will be crucial throughout our acedemic and professional careers.
 
 
