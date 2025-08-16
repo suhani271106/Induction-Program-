@@ -226,4 +226,3 @@ On 12 August 2024 , during Anti - Ragging Day , he introduced important guidelin
 
 ## Expert Lecture by Mr. Manpreet Singh "Fitness for Engineers"
 <img width="317" height="428" alt="Image" src="https://github.com/user-attachments/assets/7130eea3-3d11-4230-bffb-f60af8776325" />
-<img width="1366" height="768" alt="Image" src="https://github.com/user-attachments/assets/3dede6bd-5855-470e-94c0-78ebb1726e33" />
