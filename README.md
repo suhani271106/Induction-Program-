@@ -226,3 +226,6 @@ On 12 August 2024 , during Anti - Ragging Day , he introduced important guidelin
 
 ## Expert Lecture by Mr. Manpreet Singh "Fitness for Engineers"
 <img width="317" height="428" alt="Image" src="https://github.com/user-attachments/assets/7130eea3-3d11-4230-bffb-f60af8776325" />
+
+
+In this session Mr. Manpreet Singh told us about how to remain fit and how much importance does it hold in our life. The session was very helpful and inspiring and encouraging .The session brought to the fore the need to maintain physical as well as mental fitness to counterbalance the hectic life of engineers . Mr. Singh asserted that good health affects productivity, creativity and problem-solving skills directly . He talked about practical methods for engineers to remain fit , including adhering to a routine exercise regimen , maintaining a balanced  diet , exercising stress reducing techniques like yoga , meditation and getting enough sleep. The lecture also emphasized the ways in which fitness leads to increased confidence , discipline and resilience , qualities that are required for professtional as well as personal development . The session was highly inspiring and motivated students to embrace a healthier lifestyle towards long term wellness.
